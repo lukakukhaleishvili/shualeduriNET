@@ -1,0 +1,2 @@
+# shualeduriNET
+shualeduri gamocda
